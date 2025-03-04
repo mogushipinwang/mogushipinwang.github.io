@@ -1,1 +1,1 @@
-# mogushipinwang.github.io
+# [mogushipin](https://mogushipinwang.my/)
